@@ -1,4 +1,4 @@
-This is private website by MhmdSAbdlh "https://mhmdsabdlh.github.io/alnadam"
+This is fan website of TV-Show Al Nadam by MhmdSAbdlh "https://alnadam.github.io/"
 
 Twitter : https://twitter.com/MhmdSAbdlh
 
